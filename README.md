@@ -1,0 +1,2 @@
+# -BOGYMS
+Gym i Åbo
